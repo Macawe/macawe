@@ -7,13 +7,13 @@ Första kullen föddes 1990
     1+4 födda 2019-02-15 (fryst sperma, A.I.)
      e. Am Grand Ch Harmony’s Van Gogh
      u. Macawe Must-Have (cert, BIR-vinnare)
-    [Läs mer...](/valpar-2019)
+[Läs mer...](/valpar-2019)
 
 ### 2018 Man
     3+2 födda 2018-07-18
     e. Macawe Wernher
     u. Macawe Muscatel
-    [Läs mer...](https://www.macawe.com/valpar-2018)
+[Läs mer...](https://www.macawe.com/valpar-2018)
 
 ### 2014 Madeleine
     0+1 födda 2014-09-24 (fryst sperma, A.I.)
