@@ -6,8 +6,8 @@ Första kullen föddes 1990
 ### 2019 Magn
 1+4 födda 2019-02-15 (fryst sperma, A.I.)
 e. Am Grand Ch Harmony’s Van Gogh
-u. Must-Have (cert, BIR-vinnare)
-[Läs mer...](https://www.macawe.com/valpar-2019)
+u. Macawe Must-Have (cert, BIR-vinnare)
+[Läs mer...](/valpar-2019)
 
 ### 2018 Man
 3+2 födda 2018-07-18
