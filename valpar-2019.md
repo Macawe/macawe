@@ -1,5 +1,5 @@
-#Valpar 2019
-Detta är en valpkull från fryst sperma importerad från USA.
+# Valpar 2019
+Valpkull från fryst sperma importerad från USA.
 
 Valpar födda 2019-04-15, 1 hane och 4 tikar.
 
