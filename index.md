@@ -4,6 +4,7 @@
 Första kullen föddes 1990
 
 ### 2020 *planerad*
+     (fryst sperma, A.I.)
      u. Macawe Must-Have (cert, BIR-vinnare)
 
 [Läs mer...](https://macawe.com//valpar-2020)
