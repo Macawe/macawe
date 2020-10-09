@@ -3,6 +3,12 @@
 ## Kullar
 Första kullen föddes 1990
 
+### 2020 *planerad*
+     u. Macawe Must-Have (cert, BIR-vinnare)
+
+[Läs mer...](https://macawe.com//valpar-2020)
+
+
 ### 2019 Magn
     1+4 födda 2019-02-15 (fryst sperma, A.I.)
      e. Am Grand Ch Harmony’s Van Gogh
